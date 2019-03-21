@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Laj Art
+I offer all my artistic interests here.
 
-I'm glad you are here. I plan to talk about ...im layla
